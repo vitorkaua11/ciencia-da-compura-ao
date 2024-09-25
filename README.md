@@ -1,1 +1,1 @@
-# ciencia-da-compura-ao
+# ciencia-da-computção
